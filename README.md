@@ -1,5 +1,4 @@
-Rayce Giles
-Cybersecurity Researcher
+Rayce Giles, Cybersecurity Researcher
 
 Currently studying at Auburn University.
 Feel free to look around my profile or contact me using my socials:
